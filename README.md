@@ -1,6 +1,6 @@
 ---
 
-# **Favorite Movie: *Frozen***  
+# **Favorite Movie: *Frozen**  
 
 **_*Frozen*_** is a magical animated film released in **2013**, produced by Walt Disney Animation Studios. Directed by **Chris Buck** and **Jennifer Lee**, the movie became a global sensation with its heartwarming story, breathtaking visuals, and iconic soundtrack.  
 
